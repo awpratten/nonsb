@@ -1,8 +1,8 @@
 # The URL the site will be built for
-base_url = "https://pratten.ca"
+base_url = "https://nonsb.ca"
 
 # Website title
-title = "Warren Pratten - Musician"
+title = "The Nihilist Spasm Band"
 
 # Whether to automatically compile all Sass files in the sass directory
 compile_sass = true
@@ -18,4 +18,4 @@ highlight_code = true
 [extra]
 # Put all your custom variables here
 profile_photo = "https://avatars.githubusercontent.com/u/45702914"
-intro_text = "Hi! I'm Warren."
+intro_text = "The Nihlist Spasm Band"

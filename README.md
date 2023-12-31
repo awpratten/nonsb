@@ -1,2 +1,2 @@
-# awpratten.github.io
-My public website
+# nonsb.github.io
+Web Site for the Nihilist Spasm Band
