@@ -2,7 +2,7 @@
 title: About
 ---
 
-![The Nihilist Spasm Band - Group Photo](/images/Photos/NSBgroupPhotoAbout.JPG)
+![The Nihilist Spasm Band - Group Photo](/images/Photos/NSBgroupPhotoAbout.JPG#center)
 
 # This is the short story.
 

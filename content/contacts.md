@@ -2,7 +2,7 @@
 title: Contacts
 ---
 
-![The Nihilist Spasm Band - Group Photo](/images/Photos/NSBgroupPhotoContacts.JPG)
+![The Nihilist Spasm Band - Group Photo](/images/Photos/NSBgroupPhotoContacts.JPG#center)
 
 Performance Bookings and Merchandise contact John Boyle at  mailto:Boyle@noNSB.ca or mailto:johnishi@nexicom.net
 
