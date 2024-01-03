@@ -14,7 +14,8 @@
 }
 
 .navbar-text > a {
-  color: var(--bs-nav-link-color);
+  // color: var(--bs-nav-link-color);
+  color:rgba(0, 0, 0, 0.2);
   &:hover {
     color: var(--bs-navbar-hover-color);
   }
