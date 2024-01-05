@@ -248,29 +248,28 @@ Psychedelic Baby   2015  WAS24
 
 # A selection of books mentioning The Nihilist Spasm Band:
 
-"We Sing A New Language: The Oral Discography of Thurston Moore" -  [https://www.amazon.co.uk/Thurston-Moore-Sing-New-Language/dp/1785581368/ref=sr_1_1?ie=UTF8&qid=1485012457&sr=8-1&keywords=thurston+moore+nick+soulsby](https://www.amazon.co.uk/Thurston-Moore-Sing-New-Language/dp/1785581368/ref=sr_1_1?ie=UTF8&qid=1485012457&sr=8-1&keywords=thurston+moore+nick+soulsby)
+["We Sing A New Language: The Oral Discography of Thurston Moore"](https://www.amazon.co.uk/Thurston-Moore-Sing-New-Language/dp/1785581368/ref=sr_1_1?ie=UTF8&qid=1485012457&sr=8-1&keywords=thurston+moore+nick+soulsby)
 
 
-Japanoise: Music at the Edge of Circulation by David Novak - [https://www.amazon.com/Japanoise-Music-Circulation-Storage-Transmission/dp/082235392X/ref=as_sl_pc_ss_til?tag=rarevideos-20&linkCode=w00&linkId=2SO2IT265JMWXWIR&creativeASIN=082235392X](https://www.amazon.com/Japanoise-Music-Circulation-Storage-Transmission/dp/082235392X/ref=as_sl_pc_ss_til?tag=rarevideos-20&linkCode=w00&linkId=2SO2IT265JMWXWIR&creativeASIN=082235392X)
+[Japanoise: Music at the Edge of Circulation by David Novak](https://www.amazon.com/Japanoise-Music-Circulation-Storage-Transmission/dp/082235392X/ref=as_sl_pc_ss_til?tag=rarevideos-20&linkCode=w00&linkId=2SO2IT265JMWXWIR&creativeASIN=082235392X)
 
 
-Noise Music: by Paul Hegarty - - https://www.amazon.com/Noise-Music-History-Paul-Hegarty/dp/0826417272/ref=sr_1_1?s=books&ie=UTF8&qid=1485715743&sr=1-1&keywords=Noise+Music%3A+by+Paul+Hegarty
+[Noise Music: by Paul Hegarty](https://www.amazon.com/Noise-Music-History-Paul-Hegarty/dp/0826417272/ref=sr_1_1?s=books&ie=UTF8&qid=1485715743&sr=1-1&keywords=Noise+Music%3A+by+Paul+Hegarty)
 
 
-Postmodern Music/Postmodern Thought (Studies in Contemporary Music and Culture by Judy Lochhead (Editor), Joseph Auner (Editor)) - https://www.amazon.com/Postmodern-Thought-Studies-Contemporary-Paperback/dp/0815338201
+[Postmodern Music/Postmodern Thought (Studies in Contemporary Music and Culture by Judy Lochhead (Editor), Joseph Auner (Editor))](https://www.amazon.com/Postmodern-Thought-Studies-Contemporary-Paperback/dp/0815338201)
 
 
-The Other Side of Nowhere: Jazz, Improvisation, and Communities in Dialogue (Music/Culture) Paperback – March 30, 2004 by Daniel Fischlin (Editor), Ajay Heble (Editor), & 1 more - https://www.amazon.com/Other-Side-Nowhere-Improvisation-Communities/dp/0819566829/ref=sr_1_1?s=books&ie=UTF8&qid=1485715868&sr=1-1&keywords=The+Other+Side+of+Nowhere%3A+Jazz%2C+Improvisation%2C+and+Communities+in+Dialogue+%28Music%2FCulture%29+Paperback
+[The Other Side of Nowhere: Jazz, Improvisation, and Communities in Dialogue (Music/Culture) Paperback – March 30, 2004 by Daniel Fischlin (Editor), Ajay Heble (Editor), & 1 more](https://www.amazon.com/Other-Side-Nowhere-Improvisation-Communities/dp/0819566829/ref=sr_1_1?s=books&ie=UTF8&qid=1485715868&sr=1-1&keywords=The+Other+Side+of+Nowhere%3A+Jazz%2C+Improvisation%2C+and+Communities+in+Dialogue+%28Music%2FCulture%29+Paperback)
 
 
-Traveling Music: The Soundtrack to My Life and Times Paperback – September 1, 2004 by Neil Peart  (Author) -
-https://www.amazon.com/dp/1550226665?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=1550226665&adid=06G9QCJF3K96709ACJ4F&
+[Traveling Music: The Soundtrack to My Life and Times Paperback – September 1, 2004 by Neil Peart  (Author)](https://www.amazon.com/dp/1550226665?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=1550226665&adid=06G9QCJF3K96709ACJ4F&)
 
 
-The Complete How To Kazoo Aug 24, 2006 by Barbara Stewart - https://www.amazon.com/dp/0761142215?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=0761142215&adid=0NP3CJKP4DBXZSB3SBMW&
+[The Complete How To Kazoo Aug 24, 2006 by Barbara Stewart](https://www.amazon.com/dp/0761142215?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=0761142215&adid=0NP3CJKP4DBXZSB3SBMW&)
 
 
-Canadian Art in the Twentieth Century - https://www.amazon.com/Canadian-Twentieth-Century-Joan-Murray/dp/1550023322/ref=sr_1_1?s=books&ie=UTF8&qid=1485715938&sr=1-1&keywords=Canadian+Art+in+the+Twentieth+Century
+[Canadian Art in the Twentieth Century](https://www.amazon.com/Canadian-Twentieth-Century-Joan-Murray/dp/1550023322/ref=sr_1_1?s=books&ie=UTF8&qid=1485715938&sr=1-1&keywords=Canadian+Art+in+the+Twentieth+Century)
 
 
-The Encyclopedia of Underground Movies: Films from the Fringes of Cinema Paperback – November 15, 2004 by Phil Hall  (Author) - https://www.amazon.com/dp/0941188957?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=0941188957&adid=0BCYDBNR05XP8VDM8P7N&
+[The Encyclopedia of Underground Movies: Films from the Fringes of Cinema Paperback – November 15, 2004 by Phil Hall  (Author)](https://www.amazon.com/dp/0941188957?tag=rarevideos-20&camp=213381&creative=390973&linkCode=as4&creativeASIN=0941188957&adid=0BCYDBNR05XP8VDM8P7N&)
