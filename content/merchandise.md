@@ -21,19 +21,19 @@ Reken Records, Attiki, Greece, 2013
 
 Recorded in the Foyer St. Fridolin, Mulhouse, France in 2004 during the band's second European tour, this is their last l p recording before the death of bassist Hugh McIntyre later that year.  It is dedicated to his memory.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$40(shipping included) in E.U.
 
 ## The Nihilist Spasm Band "Breaking Wind" - North South East West
 
 Recorded in sessions at Forest City Gallery, London, Ontario, between 2009 and 2012, this record was commissioned by Nikolas Malevistsis as a 40th birthday present to himself. It is a beautifully designed album, superbly mastered by Themistaklis Pantelopoulos.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$40(shipping included) in E.U.
 
 ## The Nihilist Spasm Band & Sun Plexus 2 - No Victoria
 
@@ -41,10 +41,10 @@ Bimbo Tower Records, Paris, 2009
  
 This extraordinary 2 record set is the result of collaborations between NSB and Sun Plexus 2 in 10 hours of studio sessions at La Mer Rouge studio, Mulhouse, France, and in a 2008 Canadian tour that included concerts at the Victoriaville Festival de Musique Actuelle, Club Tranzac, Toronto, and Pandemic, London. The French/English liner notes of Bruce Lee Galenter are like a hilarious circular conversation between Babylon and Google Translate.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$40(shipping included) in E.U.
 
 
 ## The Nihilist Spasm Band - No Record
@@ -54,10 +54,10 @@ Originally released on Allied Records, Toronto, 1968
 
 Here it is rereleased by Pacemaker Entertainment in a limited edition of 500. Spin Magazine lists No Record among the top 100 counter cultural disks of all time, ahead of such luminaries as Ornette Coleman, Sun Ra and Harry Partch.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$40(shipping included) in E.U.
 
 
 ## Nihilist Spasm Band - Nothing Is Forever
@@ -67,10 +67,10 @@ Wintage Records and Tapes, Toronto, 2012
 
 This is a selection of four new tracks recorded at Forest City Gallery at the band's regular Monday night sessions.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$40(shipping included) in E.U.
 
 
 ## Fluxus Del Ano 1970, The Nihilist Spasm Band, tENTATIVELY a cONVENIENCE, and Kommissar Hjuler und Praktikantin
@@ -80,10 +80,10 @@ Released on Psych, KG243, Germany, 2015
 
 This compilation album contains 18 minutes and 28 seconds of new Spasm Band material recorded live at Filharmonie Brno, Czech Republic, 2015.
 
-    CA$30(shipping included) in Ontario & Quebec/Canada
-    CA$35(shipping included) in Rest of Canada
-    CA$35(shipping included) in U.S.A.
-    CA$ 40(shipping included) in E.U.
+CA$30(shipping included) in Ontario & Quebec/Canada
+CA$35(shipping included) in Rest of Canada
+CA$35(shipping included) in U.S.A.
+CA$ 40(shipping included) in E.U.
 
 # Compact Discs ... all CDs will be sent sans jewel box
 
@@ -95,8 +95,8 @@ This compilation album contains 18 minutes and 28 seconds of new Spasm Band mate
 First released on Allied, Toronto, 1968
 Here reissued on Alchemy Records, Osaka, Japan, 2016
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 
@@ -110,8 +110,8 @@ These are special reissues by Alchemy Records on the occasion of the fiftieth an
 
 The two numbers from the Alchemy Records come with a special post card of the band for the first 70 orders.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world 
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world 
 
 
 ## No Borders - The Nihilist Spasm Band and Joe McPhee, 2 CDs
@@ -121,8 +121,8 @@ Non Musica Rex, London, Ontario, 2001
 
 This beautifully designed double CD box set contains selections from two days of studio sessions and a live concert. It is a rare collaboration between the band and jazz great Joe McPhee, featuring 9 stunning tracks of original improvisations.
 
-    CA$20 (shipping included) in Canada
-    CA$25 (shipping included) in U.S.A. and rest of the world
+CA$20 (shipping included) in Canada
+CA$25 (shipping included) in U.S.A. and rest of the world
 
 
 ## No Nothing - No Music Festival, 2000
@@ -134,7 +134,7 @@ Featured are The Nihilist Spasm Band, The Black Auks (St.  John's, Nfld.), Aube 
 
 This is a superb recording of the stage performances at London's Aeolian Hall and the nightly jam sessions at the third international No Music Festival in London, Ontario. Included in this rare box set is a 20 page booklet and a special edition No Music button.
 
-    CA$90 (shipping included) 
+CA$90 (shipping included) 
 
 
 ## No Tribute
@@ -144,8 +144,8 @@ Sunship Records (Minneapolis), Little Mafia Records (Oklahoma City), Carbon Reco
 
 This co-production recording includes twenty-four cover tracks of songs by  the Nihilist Spasm Band. Artists include Baku, Unconditional Loathing,  Jacopo Andreini, Madame Chao, Alan Licht, Carlos Giffoni, Reynols, Cock E.S.P., Wolf Eyes, Hijokaidan, and fourteen others from around the world.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## NSB Live @ Western Front
@@ -155,8 +155,8 @@ This co-production recording includes twenty-four cover tracks of songs by  the 
 
 Recorded live at Vancouver's fabled Western Front performance centre before a packed house, this has been hailed as the best ever live recording of the Nihilist Spasm Band. Original band members John Boyle, John Clement, Bill Exley, Murray Favro, and Art Pratten are joined here by Aya Onishi and Tim Glasgow, with a special appearance by George Bowering, Canada's Poet Laureate.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 
@@ -167,8 +167,8 @@ Recorded live at Vancouver's fabled Western Front performance centre before a pa
 
 Collected here on one CD are twelve, possibly thirteen, of the band's greatest hits recorded between 1965 and 2001, with all of the band's original members represented, including Archie Leitch, Greg Curnoe and Hugh McIntyre, with the addition of Joe McPhee on Do It My Way. This compilation shows the evolution of the band's sound over thirty-six years of its long history.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## 1984 - The Nihilist Spasm Band
@@ -177,8 +177,8 @@ Originally released as a cassette by Chimik Communications, Montreal, 1984 Reiss
 
 This is a selection of five recordings made at the band's regular Monday night sessions at Forest City Gallery in London, Ontario in 1984. It perfectly captures the flavor of the band's Monday nights during that auspicious year.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## The Nihilist Spasm Band - Every Monday Night
@@ -187,8 +187,8 @@ Alchemy Records, Osaka, Japan, 1999
 
 Recorded at DB Studio, London, Ontario in 1998 at the request of Alchemy's Jojo Hiroshige, this collector's item contains classic band titles Mother Canada, I Dreampt I Was Living in Paradise, and I'm a Real Nice Fellow. The striking album design is by Masahiko Ohno (Solmania).
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## Brampton Indie Arts Festival - The Suburban Manifesto
@@ -198,8 +198,8 @@ Sunday League, 2007
 
 This is a compilation of sixteen tracks from the Brampton Indie Arts Festival, including songs by Friendly Rich and the Lollipop People, Hayden, Cuff the Duke, The Reostatics, Nash the Slash, Mendelson Joe, Ron Sexmith, and, of course, the Nihilist Spasm Band with Meat Eater.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 
@@ -210,8 +210,8 @@ Disques Hushush, 2005
 
 Mixed and remixed by the Argentinian group Reynols, this CD is a re-examination of Spasm Band songs Acrostics (Infinite Version), No Borders (Destroy All the Borders), and No Canada (No Remix - No Canada - No Argentina), through the artistic filter of Reynols, Argentina. It is dedicated to the memories of Hugh McIntyre and Jorje Tomasin.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## The Glasshouse - an audio visual performance by Danielle de Picciotto and Alexander Hacke
@@ -221,8 +221,8 @@ Potomar, 2012
 
 This experimental film features five different and separate musical scores by Algis Antanas Kizys, Steve Forker, David Eugene Edwards, Paul Browse, and the Nihilist Spasm Band.
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 ## LAST CONCERT IN JAPAN   CD   Alchemy   2016   TECH-24486
@@ -232,8 +232,8 @@ The second half of each show was a series of jam sessions, inspired by the histo
 
 Included with the beautifully designed CD is a gorgeous twelve page booklet.  The text is in Japanese, but it is jam packed with outstanding colour and b & w photos taken during the concert
 
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 * Cassette Tapes
@@ -241,15 +241,10 @@ Included with the beautifully designed CD is a gorgeous twelve page booklet.  Th
 ## NSB/ METABOLISMUS  
 Psychedelic Baby   2015  WAS24
 
-
 http://www.psychedelicbabymag.com/2014/09/metabolismus.html
 
-
-
-
-
-    CA$15 (shipping included) in Canada
-    CA$20 (shipping included) in U.S.A. and rest of the world
+CA$15 (shipping included) in Canada
+CA$20 (shipping included) in U.S.A. and rest of the world
 
 
 # A selection of books mentioning The Nihilist Spasm Band:
