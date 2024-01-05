@@ -2,9 +2,10 @@
 title: Discography
 ---
 
-||Title	| Format	| Label	| Year | Released	| Catalogue Number||
+|Title	| Format	| Label	| Year Released	| Catalogue Number|
+|:---|:---|:---|:---:|:---:|
 | LAST CONCERT IN JAPAN	| CD  | 	Alchemy Records | 	2016	|TECH-24486|
-No Record 	LP re-re-release 	Pacemaker Entertainment LTD 	2014 	LION LP-136
+|No Record 	|LP re-re-release |	Pacemaker Entertainment LTD |	2014 |	LION LP-136|
 Breaking Wind 	LP 	Rekem Records 	2013 	Rekem 04
 Nothing is Forever 	LP 	Wintage Records & Tapes 	2011 	WRT-99
 theBESTweCANdo 	CD 	NSB 	2008 	-
@@ -28,16 +29,13 @@ The Sweetest Country This Side of Heaven	Flexidisc	Arts Canada	1967
 
 ### Recordings with contributions from the Nihilist Spasm Band
 
-Title	Format	Label	Year Released	Catalogue Number
-NSB/Metabolismus
-	cassette tape
-	Psychedelic Baby
-	2015
-	WAS24
-No Victoria with Sun Plexus 2 	double LP 	Bimbo Tower Records 	2009 	BTR09
-No Nothing	6 CD box set	non musica rex	2001	NMRx0001
-More Music, Less Parking WFMU Live From Jersey City	2 CDs	WFMU	2000	
-no99	5 CD box set	Entartete Kunst Recordings	2000	EK2120
-No Music Box 	6 CD box set	Entartete Kunst Recordings	1999	EK1898
-Screw	2 CDs	Entartete Kunst Recordings	1998	EK1497
-World Record	CD	Alchemy Records	1992	ARCD-042
+|Title	| Format	| Label	| Year Released	| Catalogue Number|
+|:---|:---|:---|:---:|:---:|
+| NSB/Metabolismus | 	cassette tape| 	Psychedelic Baby| 	2015 | 	WAS24|
+| No Victoria with Sun Plexus 2 |	double LP |	Bimbo Tower Records 	|2009 |	BTR09|
+|No Nothing	|6 CD box set	|non musica rex	|2001|	NMRx0001|
+| More Music, Less Parking WFMU Live From Jersey City	|2 CDs	|WFMU|	2000	| |
+no99	|5 CD box set	|Entartete Kunst Recordings	| 2000|	EK2120|
+No Music Box |	6 CD box set|	Entartete Kunst Recordings|	1999	|EK1898|
+Screw	|2 CDs|	Entartete Kunst Recordings	|1998	|EK1497|
+World Record	|CD	|Alchemy Records|	1992|	ARCD-042|
