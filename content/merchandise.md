@@ -236,7 +236,7 @@ CA$15 (shipping included) in Canada
 CA$20 (shipping included) in U.S.A. and rest of the world
 
 
-* Cassette Tapes
+# Cassette Tapes
 
 ## NSB/ METABOLISMUS  
 Psychedelic Baby   2015  WAS24
