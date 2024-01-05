@@ -14,7 +14,7 @@ The band currently plays most every Monday night at Forest City Gallery in Londo
 
 # This is the long story (from the liner notes to Vol. 2)
 
-The Nihilist Spasm Band is unique. In the original meaning of that work, which is one of a kind. We know of no other band like the Spasm Band. How is it unique? There are two interrelated factors. Our music is completely freely improvised and we make our own instruments. Perhaps that does not sound so unusual; further explanation is required.
+The Nihilist Spasm Band is unique. In the original meaning of that word, which is one of a kind. We know of no other band like the Spasm Band. How is it unique? There are two interrelated factors. Our music is completely freely improvised and we make our own instruments. Perhaps that does not sound so unusual; further explanation is required.
 
 Of course, many others improvise, but they are generally improvising on standard chords, modes, and scales. Even those who improvise, "completely freely" are trained musicians who are consciously breaking the rules and forcing unconventional sounds out of traditional instruments. No member of the Spasm Band plays a traditional instrument either in the band or anywhere else. In other words, even if we wanted to play Melancholy Baby, we couldn't.
 

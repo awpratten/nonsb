@@ -14,7 +14,8 @@
 }
 
 .navbar-text > a {
-  color: var(--bs-nav-link-color);
+  // color: var(--bs-nav-link-color);
+  color: black;
   &:hover {
     color: var(--bs-navbar-hover-color);
   }
