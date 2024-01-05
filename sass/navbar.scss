@@ -1,6 +1,6 @@
 
 .navbar {
-  background-color: #fa0000;
+  background-color: #832d2d;
   box-shadow: 0 2px 4px rgba(0, 0, 0, 0.2);
 //   border-bottom-right-radius: 15px;
 //   border-bottom-left-radius: 15px;
@@ -14,8 +14,7 @@
 }
 
 .navbar-text > a {
-  // color: var(--bs-nav-link-color);
-  color: black;
+  color: var(--bs-nav-link-color);
   &:hover {
     color: var(--bs-navbar-hover-color);
   }
